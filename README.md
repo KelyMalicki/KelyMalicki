@@ -1,8 +1,21 @@
+![image](https://github.com/KelyMalicki/KelyMalicki/assets/116094747/7b3d11a2-05c7-41eb-86d2-25268373b301)![image](https://github.com/KelyMalicki/KelyMalicki/assets/116094747/17967daf-e9cc-4d2f-a8d4-e4ec50a10e8d)![image](https://github.com/KelyMalicki/KelyMalicki/assets/116094747/df7a3ea5-9e69-4759-bd18-756a651b5c1c)![image](https://github.com/KelyMalicki/KelyMalicki/assets/116094747/5046af6c-9d91-4c07-aab0-3812feed88b7)
+
+
+
+
+ 
+ venha conhecer meu trabalho(infesmente).
+ 
  # Sobre mim
+ 
 - 👋 Ola, eu sou @KelyMalicki
-- 👀 Estou interesada em melhorar meus desenhos, realizar a prova do pas/uem etc...
-- 🌱 Estou aprendendo novos metodos de ensino
-- 💞️ Estou colaboramdo com os estudos
+- 
+- 👀 Estou interesada em melhorar meus desenhos, realizar a prova do pas/uem e sair daqui
+- 
+- 🌱 Estou aprendendo nada nesta escola
+  
+- 💞️ Estou colaboramdo com os estudos sozinha pq se depender da escola eu nunca vou ser alguem na vida 
+- 
 - 📫 como chegar até mim kely.malicki@escola.pr.gov.br
 
 <!---
