@@ -13,13 +13,13 @@
  # Sobre mim
  
 - 👋 Ola, eu sou @KelyMalicki
-- 
+  
 - 👀 Estou interesada em melhorar meus desenhos, realizar a prova do pas/uem e sair daqui
-- 
+ 
 - 🌱 Estou aprendendo nada nesta escola
   
 - 💞️ Estou colaboramdo com os estudos sozinha pq se depender da escola eu nunca vou ser alguem na vida 
-- 
+  
 - 📫 como chegar até mim kely.malicki@escola.pr.gov.br
 
 <!---
